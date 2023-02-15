@@ -1,0 +1,1 @@
+# Kryzzcurso.github.io
